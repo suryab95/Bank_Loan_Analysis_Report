@@ -49,10 +49,26 @@ Objective:
 The primary objective of the Details Dashboard is to provide a comprehensive and user-friendly interface for accessing vital loan data. It will serve as a one-stop solution for users seeking detailed insights into our loan portfolio, borrower profiles, and loan performance.
 
 Created and Presented by-
-SURYA B @ Data Analyst LinkedIn ID ( www.linkedin.com/in/suryabs ) 
+	Surya Data Analyst link
 
-Location: India
 
-THE END
+my link tree : https://linktr.ee/Surya_Portfolio
+
+Git Hub Link : https://github.com/suryab95?tab=repositories
+
+
+Portfolio link : https://mavenanalytics.io/profile/SURYA-B/188509756?view=projects
+
+
+Linkedin Link : www.linkedin.com/in/suryabs
+
+
+IF U WANT MY SERVICE HIRE THROUGH 
+
+FIVERR ---  https://www.fiverr.com/s/Ld4bDpp
+
+UPWORK --- https://www.upwork.com/freelancers/~0103492aacc01e1df7
+
+thank you.
 
 
